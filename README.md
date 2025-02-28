@@ -1,1 +1,1 @@
-[![]([https://github.com/walleeva2018/walleeva2018/blob/main/a%20(2)%20(1).gif?raw=true](https://en.bloggif.com/tmp/50ebe54f2c3f6a0c80e3f6c6842f28b9/text.gif?1740750051))]<!-- If you want the template for my gif, email me! -->
+![GIF INICIAL](ItsLeo.gif)
